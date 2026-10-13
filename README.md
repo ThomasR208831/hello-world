@@ -1,1 +1,1 @@
-# hello-world
+Nazywam sie Tomek Studiuje na PG
